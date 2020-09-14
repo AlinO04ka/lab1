@@ -1,5 +1,5 @@
 ## Alina Khartanovich 
 
-- Group
+Group
 
 - 2-2
